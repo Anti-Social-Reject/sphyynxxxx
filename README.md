@@ -1,6 +1,6 @@
 ![tumblr_e06ef858677f9cb743a04bf9c03d904b_383c4270_540](https://github.com/user-attachments/assets/94de1ac8-a196-4697-a87c-0a85c342c295)
 
-Hii! Welcome to my profile! If you're looking for info about me click on tellmesocarrd or something like that. You'll know it when you see it! 
+Hii! Welcome to my profile! If you're looking for info about me click on sippingonzaza or something like that. You'll know it when you see it! 
 
 I also have an oc introduction for my oc Quing! Click that if you want to! 
 
