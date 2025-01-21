@@ -1,21 +1,50 @@
 ![tumblr_e06ef858677f9cb743a04bf9c03d904b_383c4270_540](https://github.com/user-attachments/assets/94de1ac8-a196-4697-a87c-0a85c342c295)
 
-Hii! Welcome to my profile! If you're looking for info about me click on sippingonzaza or something like that. You'll know it when you see it! 
+Also, lately people have been stealing my skins! Do I have to put DNC/No inspo just for that to not happen? Like please don't copy my oc/cos, besides,i don't put the name of my cosplays in my user, and earlier someone copied my Kirari cosplay even though they didn't even know it was a cos, so respectfully, don't copy my skins.
 
-I also have an oc introduction for my oc Quing! Click that if you want to! 
-
-`"If you can't find the key, then you can find the door. If you can find the door, then you can find the lock, a lock, what will you do? A lock without a key, without eyes, it cannot see, beyond the seams but can you? You can see everything cant you.. Then why can't you find the key?"` 
-
-The other one is a Spotify playlist, you don't have to click it but you can! ^_< 
-
-
-
-—————————————————————————————————————————————————————————————————————————————————————
-.     🏃 - ~~are you tired yet?~~ - 🏃 ~~You must be tired, rest.~~
-────୨ৎ────——————————-----────୨ৎ────———————————------- 
-`"Your walking the same path every day .. Do you get tired? You walk the same path but you cannot tell me what the path is made of? Perhaps a rocky path, or a smooth path of dirt. If I asked you would lie and tell me the path as if its what you want to see. But you can't deny the fact that it isn't true, how do think that path feels after being walked on all the time..?"`
-
-
-![avatarhd](https://github.com/user-attachments/assets/689a3b79-2bb3-480c-a316-22209aeba288)
-
+____________________________________ 🥹🙏
+A rake of claws against a mirror
+Grazing pelts we all once wore
+A kindling of a swordless bloodshed
+The creaking of a voiceless door
+Where does a mind like yours wonder
+When it's sung to sleep?
+Mind the clamours of the restless bidders
+Before you choose to weep
+And the Hound is humming you
+A lie, a lullaby
+Stuck in the middle of a forest made of
+Flesh and bones and they're all scared of
+A lost little boy who has lost his heart
+Fear's not enough, they have to tear him apart
+Follow the scent of iron sinking
+Deeper into corpses rotting
+But they can't hear you talk, talk, talk
+About every little thing, every little thing
+Every
+And the Hound is humming you
+A lie, a lullaby
+It clicks and it clatters in corners and borders
+And they will never
+Hear me here, listen to croons and a calling
+I'll tell them all the
+Story, the sun, and the swallow, her sorrow
+Singing me the tale of the Harpy and the Hare
+And the Hound is humming you
+A lie
+And the Hound is humming you
+A lie, a lullaby
+And the Hound hums
+A lie, a lullaby
+And the Hound hums
+A lie, a lullaby
+And the Hound is humming
+And the Hound is howling
+And the Hound is humming
+You
+And the Hound
+A lie, A lullaby
+And the Hound is humming you
+A lie, a lullaby
+Hmm, hmm, hmm-mm
 
